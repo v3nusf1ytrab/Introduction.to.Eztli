@@ -72,6 +72,7 @@ DNI:
 
 ● Karma from Ponytown + toxic friends of such
 
+<img width="736" height="149" alt="1000005287" src="https://github.com/user-attachments/assets/e8de0912-b872-4502-8771-50f6f6eefb51" />
 
 Thin Ices:
 
@@ -95,6 +96,8 @@ Selfships / Yumeships for our system;
 
 (CHAT, DW WE AREN'T WEIRD PLZZ. WE WON'T BE FREAKS IF YOU'RE A FICTIONKIN, COPINGLINK OR FICTIVE OF THEMM... We're a chill person, dw gang — we literally have too many fictives of Killer, ts crazy.)
 
+<img width="736" height="152" alt="1000005288" src="https://github.com/user-attachments/assets/127bac67-14b3-427e-a364-cb0ce71ea7fe" />
+
 Copinglinks for our system;
 
 Comfortkins for our system;
@@ -105,6 +108,11 @@ Comfortkins for our system;
 
 ● Eternal Sugar Cookie (We don't like the stuff going on in the fandom and by the discords atp...)
 
+● Sun & Moon from FNAF (WE DON'T SUPPORT SCOTT. HOLY SHIT, WTF MAN. IM GOING TO DIE, WHY IS HE A TRUMP SUPPORTER???)
+
+● Discord from MLP 
+
+● Killer!Sans from Something New  (</3)
 
 <img width="200" height="40" alt="1000005278" src="https://github.com/user-attachments/assets/05c9af6f-abbf-4abc-82bf-bc802e7fed83" />
 https://x.com/Flit_Is_Scuffed
