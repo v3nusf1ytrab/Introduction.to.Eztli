@@ -121,6 +121,49 @@ Comfortkins for our system;
 
 ● Killer!Sans from Something New  (</3)
 
+
+
+Fandoms we are in:
+
+● Undertale & Deltarune (+ UTMV)
+
+● Cult of The Lamb (COTL)
+
+● Slay The Princess
+
+● Analog Horror
+
+● Cookie Run (very barely)
+
+● Pokemon
+
+●Warrior Cats
+
+● SCP
+
+● Dandy's World (barely)
+
+● My Little Pony (MLP + barely)
+
+● Five Nights at Freddy's (FNAF + barely)
+
+● Amanda The Adventurer
+
+● Mouthwashing
+
+● The Freak Circus (barely)
+
+● Kingergarten
+
+ ●Freakshow (By Rexiipher on YT)
+
+● Everything is Fine (A webtoon)
+
+● House of Paso (very barely, this fandom fucking sucks but we love the series.)
+
+● Genshin Impact (very barely)
+
+
 <img width="200" height="40" alt="1000005278" src="https://github.com/user-attachments/assets/05c9af6f-abbf-4abc-82bf-bc802e7fed83" />
 https://x.com/Flit_Is_Scuffed
 
