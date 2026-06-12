@@ -83,6 +83,10 @@ Thin Ices:
 
 ● Pro-Ren individuals in the pressure situation (WE are neutral btw.)
 
+
+<img width="736" height="152" alt="1000005285" src="https://github.com/user-attachments/assets/d1af2d4c-a9b5-4590-acec-3e6ff3de6b02" />
+
+
 Selfships / Yumeships for our system;
 
 ● Killer!Sans from Something New — Sharing.
