@@ -32,12 +32,15 @@ Due to multiple reasons; they are considered to be a IAYOR. (Interact at your ow
 Lovesick is DNIUF (Do not interact unless friends) as to their role.
 
 
+<img width="736" height="176" alt="1000005284" src="https://github.com/user-attachments/assets/f5b5d311-796c-47d5-90b8-f70fa8aaaaa9" />
 
 Now onto the other stuff!!
 
 
 We are currently A MINOR. We are fine with being friends with 18+ (no over 24 though) individuals — as we quite literally have a lot of 18+ identifying alters — as long as you use clear, sfw boundaries towards us.
 (Our Gatekeepers and Protectors quite literally watch the front like a damn murder of crows and will just decide on an adjustment as a collective grouping if necessary. Stating as a Gatekeeper myself Xd -🖌)
+
+<img width="300" height="40" alt="1000005278" src="https://github.com/user-attachments/assets/05c9af6f-abbf-4abc-82bf-bc802e7fed83" />
 
  THIS IS A WIP PROJECT, WE'RE PROBABLY GOING TO CONTINUE??? MAYBE??? 
 Go to our straw․page for more information for now
