@@ -94,7 +94,7 @@ Selfships / Yumeships for our system;
 
 ● Nightmare!Sans from Dreamtale — Sharing. (We don't support Joku!! Ewww, joku, why you are darkshipper and abusive asshole, jokublogg... Eww, stinky.)
 
-(CHAT, DW WE AREN'T WEIRD PLZZ. WE WON'T BE FREAKS IF YOU'RE A FICTIONKIN, COPINGLINK OR FICTIVE OF THEMM... We're a chill person, dw gang — we literally have too many fictives of Killer, ts crazy.)
+CHAT, DW WE AREN'T WEIRD PLZZ. WE WON'T BE FREAKS IF YOU'RE A FICTIONKIN, COPINGLINK OR FICTIVE OF THEMM... We're a chill person, dw gang — we literally have too many fictives of Killer, ts crazy.
 
 <img width="736" height="152" alt="1000005288" src="https://github.com/user-attachments/assets/127bac67-14b3-427e-a364-cb0ce71ea7fe" />
 
