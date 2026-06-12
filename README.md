@@ -7,6 +7,10 @@ Hello there!! My name's Eztli — or you can call me Wick. I also go by The Flyt
 
 I am a diagnosed DID system along with a dx'd ADHDer with heavily suspected Borderpolar (Borderline Personality Disorder + Bipolar) and ASD. (As our bio had already stated)
 
+
+<img width="718" height="132" alt="1000005282" src="https://github.com/user-attachments/assets/a36b10a7-1b3c-4477-90ca-24297caa6fd4" />
+
+
 I thought I should give a list of the most common dissociative parts you may encounter!
 
 ￬￬￬
