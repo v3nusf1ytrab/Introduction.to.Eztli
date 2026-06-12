@@ -164,8 +164,12 @@ Fandoms we are in:
 ● Genshin Impact (very barely)
 
 
+
+
 <img width="200" height="40" alt="1000005278" src="https://github.com/user-attachments/assets/05c9af6f-abbf-4abc-82bf-bc802e7fed83" />
 https://x.com/Flit_Is_Scuffed
+
+
 
 
 THIS IS A WIP PROJECT, WE'RE PROBABLY GOING TO CONTINUE??? MAYBE??? 
