@@ -83,6 +83,16 @@ Thin Ices:
 
 ● Pro-Ren individuals in the pressure situation (WE are neutral btw.)
 
+Selfships / Yumeships for our system;
+Killer!Sans from Something New — Sharing.
+Nightmare!Sans from Dreamtale — Sharing.
+
+(CHAT, DW WE AREN'T WEIRD PLZZ. WE WON'T BE FREAKS IF YOU'RE A FICTIONKIN, COPINGLINK OR FICTIVE OF THEMM... We're a chill person, dw gang — we literally have too many fictives of Killer, ts crazy.)
+
+Copinglinks for our system;
+
+Comfortkins for our system;
+
 <img width="200" height="40" alt="1000005278" src="https://github.com/user-attachments/assets/05c9af6f-abbf-4abc-82bf-bc802e7fed83" />
 https://x.com/Flit_Is_Scuffed
 
