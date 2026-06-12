@@ -100,6 +100,13 @@ Selfships / Yumeships for our system;
 
 Copinglinks for our system;
 
+● Dust/Murder!Sans from Dusttale 
+
+● Horror!Sans from Horrortale (ewwww, SourAppleStudios following after Joku with the darkshippingg, ewww... Trashcan for Sourr...)
+
+● Lust!Sans from Underlust (Again, ew cuz darkshipper. We don't support the creator for this au. Yucky.)
+
+
 Comfortkins for our system;
 
 ● Reaper!Sans from Reapertale (We don't support the creator!! Cuz we heard that they did some predator shit, so nahhh...)
