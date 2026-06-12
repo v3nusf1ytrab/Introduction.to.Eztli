@@ -40,9 +40,54 @@ Now onto the other stuff!!
 We are currently A MINOR. We are fine with being friends with 18+ (no over 24 though) individuals — as we quite literally have a lot of 18+ identifying alters — as long as you use clear, sfw boundaries towards us.
 (Our Gatekeepers and Protectors quite literally watch the front like a damn murder of crows and will just decide on an adjustment as a collective grouping if necessary. Stating as a Gatekeeper myself Xd -🖌)
 
-<img width="300" height="40" alt="1000005278" src="https://github.com/user-attachments/assets/05c9af6f-abbf-4abc-82bf-bc802e7fed83" />
+Speaking of such!! DNI & Thin Ices, smoke bombb XD
 
- THIS IS A WIP PROJECT, WE'RE PROBABLY GOING TO CONTINUE??? MAYBE??? 
+DNI:
+
+● People over 24 / under 12!
+
+● Endogentic, Willogentic, Mixed origined or anything other version "systems/plurals"
+
+● Pro-endogentic systems/plurals/multiples.
+
+● People who call themselves "Polymind"
+
+● Proshippers, Darkshippers & Dark Comshippers
+
+● Anti/neutral-woke individuals.
+
+● Anti-vax individuals.
+
+● ABDL, Diaperfurs & Babyfurs.
+
+● NSFW "littlespaces" / "petspaces"
+
+● Public Age & Pet players. (Context if needed: if you do ageplay or petplay in public environments on the internet.)
+
+● Racist, Ableist, anti-LGBTQIA+ & Sexist individuals
+
+● Zoophile, Pedophile & Rapist supporters
+
+● Zoophiles, Zoosadists & Pedophiles (this includes shotos & lolicons)
+
+● Karma from Ponytown + toxic friends of such
+
+
+Thin Ices:
+
+● Anti-AI(- AI"art") AND Pro-AI individuals
+
+● Systems who use the term RAMCOA
+
+● People who say self/yumeshipping with a character is the bad version of parasocial behavior
+
+● Pro-Ren individuals in the pressure situation (WE are neutral btw.)
+
+<img width="200" height="40" alt="1000005278" src="https://github.com/user-attachments/assets/05c9af6f-abbf-4abc-82bf-bc802e7fed83" />
+https://x.com/Flit_Is_Scuffed
+
+
+THIS IS A WIP PROJECT, WE'RE PROBABLY GOING TO CONTINUE??? MAYBE??? 
 Go to our straw․page for more information for now
 
 ￬￬￬
