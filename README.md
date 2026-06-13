@@ -5,7 +5,7 @@ Hello there!! My name's Eztli — or you can call me Wick. I also go by The Flyt
 
 
 
-I am a diagnosed DID system along with a dx'd ADHDer with heavily suspected Borderpolar (Borderline Personality Disorder + Bipolar) and ASD. (As our bio had already stated)
+I am a diagnosed DID system along with a dx'd ADHDer with heavily suspected Borderpolar (Borderline Personality Disorder + Bipolar) and ASD. As our bio had already stated
 
 
 <img width="718" height="132" alt="1000005282" src="https://github.com/user-attachments/assets/a36b10a7-1b3c-4477-90ca-24297caa6fd4" />
@@ -40,7 +40,7 @@ Now onto the other stuff!!
 We are currently A MINOR. We are fine with being friends with 18+ (no over 24 though) individuals — as we quite literally have a lot of 18+ identifying alters — as long as you use clear, sfw boundaries towards us.
 (Our Gatekeepers and Protectors quite literally watch the front like a damn murder of crows and will just decide on an adjustment as a collective grouping if necessary. Stating as a Gatekeeper myself Xd -🖌)
 
-Speaking of such!! DNI & Thin Ices, smoke bombb XD
+Speaking of such!! DNI & Thin Ices, smoke bombb! XD
 
 DNI:
 
@@ -62,7 +62,7 @@ DNI:
 
 ● NSFW "littlespaces" / "petspaces"
 
-● Public Age & Pet players. (Context if needed: if you do ageplay or petplay in public environments on the internet.)
+● Age & Pet players.
 
 ● Racist, Ableist, anti-LGBTQIA+ & Sexist individuals
 
@@ -78,7 +78,8 @@ Thin Ices:
 
 ● Anti-AI(- AI"art") AND Pro-AI individuals
 
-● Systems who use the term RAMCOA
+● Systems who use the term RAMCOA 
+(we believe yall but holy shit... Using a term for trauma, for a disorder that's already about having severe, complicated trauma? Very "I have more trauma than you!!" and disheartening. Coming from someone who experience the OA part of the term!!)
 
 ● People who say self/yumeshipping with a character is the bad version of parasocial behavior
 
