@@ -179,13 +179,21 @@ We usually don't like being touched on Ponytown (or in general on the internet) 
 
 <img width="640" height="64" alt="1000005355" src="https://github.com/user-attachments/assets/ebf2cac8-7aed-4ed1-aeb7-45c9c487ddd6" />
 
+We ARE a polytherian (more than one theriotype), the following are our theriotypes!
 
-THIS IS A WIP PROJECT, WE'RE PROBABLY GOING TO CONTINUE??? MAYBE??? 
-Go to our straw․page for more information for now
+Physical Theriotype(s): Batearred fox & The Irish Goat
 
-￬￬￬
+Psychological Theriotype(s): English Mastiff & The Czechoslovakian Wolfdog
 
-https://th3traps3y3.straw.page
+Spiritual Theriotype(s): Homing pigeon
+
+<img width="480" height="20" alt="1000005356" src="https://github.com/user-attachments/assets/55a1296e-e559-4432-a277-4c204a7ea844" />
+
+We are a mainly English user, we know little things in other languages. Please stay English only with us.
+
+We are currently trying to learn Deutsch! (Which we have our phone's language turned to German so please forgive us if we mistake something for something else!)
+
+<img width="300" height="53" alt="1000005357" src="https://github.com/user-attachments/assets/8e77368b-f4a4-4f19-952c-24685befdf27" />
 
 (Most dividers used here are from: https://rentry.co/divsdivsdivs — credits to the creators!!)
 
@@ -200,3 +208,5 @@ https://th3traps3y3.straw.page
 <img width="736" height="152" alt="1000005285" src="https://github.com/user-attachments/assets/d1af2d4c-a9b5-4590-acec-3e6ff3de6b02" />
 
 <img width="736" height="152" alt="1000005288" src="https://github.com/user-attachments/assets/127bac67-14b3-427e-a364-cb0ce71ea7fe" />
+
+OKOK, bye bye. Idk if I will ever add anything else  :P
