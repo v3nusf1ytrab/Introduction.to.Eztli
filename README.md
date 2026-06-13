@@ -83,7 +83,7 @@ Thin Ices:
 ● Anti-AI(- AI"art") AND Pro-AI individuals
 
 ● Systems who use the term RAMCOA 
-(we believe yall but holy shit... Using a term for trauma, for a disorder that's already about having severe, complicated trauma? Very "I have more trauma than you!!" and disheartening. Coming from someone who experience the OA part of the term!!)
+(we believe yall but holy shit... Using a term for trauma, for a disorder that's already about having severe, complicated trauma? Very "I have more trauma than you!!" and disheartening. Coming from someone who experienced the OA part of the term!!)
 
 ● People who say self/yumeshipping with a character is the bad version of parasocial behavior
 
@@ -172,6 +172,12 @@ Fandoms we are in:
 ● House of Paso (very barely, this fandom fucking sucks but we love the series.)
 
 ● Genshin Impact (very barely)
+
+<img width="1280" height="151" alt="1000005354" src="https://github.com/user-attachments/assets/043d93bf-a7c3-41dc-8af5-e38f9d05548b" />
+
+We usually don't like being touched on Ponytown (or in general on the internet) by people who we have never interacted with before / people we aren't friends with. "But this is the internet??? Are you one of those losers?" Yes, we are "one of those losers" as we have a form(s) of Synesthesia — particularly towards the senses of touch, sight and hearing. "What is Synesthesia?" Idk how to explain it here but please look into it, it's actually VERY interesting as a topic!!
+
+<img width="640" height="64" alt="1000005355" src="https://github.com/user-attachments/assets/ebf2cac8-7aed-4ed1-aeb7-45c9c487ddd6" />
 
 
 THIS IS A WIP PROJECT, WE'RE PROBABLY GOING TO CONTINUE??? MAYBE??? 
