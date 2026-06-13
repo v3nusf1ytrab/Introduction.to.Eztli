@@ -1,14 +1,10 @@
 # Introduction.to.Eztli
 Hello there!! My name's Eztli — or you can call me Wick. I also go by The Flytrap System as a system name!
 
-<img width="150" height="20" alt="1000005279" src="https://github.com/user-attachments/assets/73520cdc-a6b1-4d2f-89c9-6e2bfcc64d80" /> <img width="150" height="20" alt="1000005280" src="https://github.com/user-attachments/assets/6651514a-4cda-4787-b703-409c5343700f" />
-
-
 
 I am a diagnosed DID system along with a dx'd ADHDer with heavily suspected Borderpolar (Borderline Personality Disorder + Bipolar) and ASD. As our bio had already stated
 
-
-<img width="718" height="132" alt="1000005282" src="https://github.com/user-attachments/assets/a36b10a7-1b3c-4477-90ca-24297caa6fd4" />
+I, collectively, identify as Genderfluid (particularly Systemfluid), Pansexual and Ambiamorous! Overall, we would prefer genderneutrul (They/Them, It/Its) pronouns or plural (yall/yall's) pronouns when we don't tell who is actively interacting with you.   Please tell us if you have any questions about anything related to those things!
 
 
 I thought I should give a list of the most common dissociative parts you may encounter!
@@ -32,15 +28,13 @@ Due to multiple reasons; they are considered to be a IAYOR. (Interact at your ow
 Lovesick is DNIUF (Do not interact unless friends) as to their role.
 
 
-<img width="736" height="176" alt="1000005284" src="https://github.com/user-attachments/assets/f5b5d311-796c-47d5-90b8-f70fa8aaaaa9" />
-
 Now onto the other stuff!!
-
 
 We are currently A MINOR. We are fine with being friends with 18+ (no over 24 though) individuals — as we quite literally have a lot of 18+ identifying alters — as long as you use clear, sfw boundaries towards us.
 (Our Gatekeepers and Protectors quite literally watch the front like a damn murder of crows and will just decide on an adjustment as a collective grouping if necessary. Stating as a Gatekeeper myself Xd -🖌)
 
 Speaking of such!! DNI & Thin Ices, smoke bombb! XD
+
 
 DNI:
 
@@ -72,7 +66,6 @@ DNI:
 
 ● Karma from Ponytown + toxic friends of such
 
-<img width="736" height="149" alt="1000005287" src="https://github.com/user-attachments/assets/e8de0912-b872-4502-8771-50f6f6eefb51" />
 
 Thin Ices:
 
@@ -86,9 +79,6 @@ Thin Ices:
 ● Pro-Ren individuals in the pressure situation (WE are neutral btw.)
 
 
-<img width="736" height="152" alt="1000005285" src="https://github.com/user-attachments/assets/d1af2d4c-a9b5-4590-acec-3e6ff3de6b02" />
-
-
 Selfships / Yumeships for our system;
 
 ● Killer!Sans from Something New — Sharing.
@@ -97,7 +87,6 @@ Selfships / Yumeships for our system;
 
 CHAT, DW WE AREN'T WEIRD PLZZ. WE WON'T BE FREAKS IF YOU'RE A FICTIONKIN, COPINGLINK OR FICTIVE OF THEMM... We're a chill person, dw gang — we literally have too many fictives of Killer, ts crazy.
 
-<img width="736" height="152" alt="1000005288" src="https://github.com/user-attachments/assets/127bac67-14b3-427e-a364-cb0ce71ea7fe" />
 
 Copinglinks for our system;
 
@@ -179,3 +168,15 @@ Go to our straw․page for more information for now
 ￬￬￬
 
 https://th3traps3y3.straw.page
+
+<img width="150" height="20" alt="1000005279" src="https://github.com/user-attachments/assets/73520cdc-a6b1-4d2f-89c9-6e2bfcc64d80" /> <img width="150" height="20" alt="1000005280" src="https://github.com/user-attachments/assets/6651514a-4cda-4787-b703-409c5343700f" />
+
+<img width="718" height="132" alt="1000005282" src="https://github.com/user-attachments/assets/a36b10a7-1b3c-4477-90ca-24297caa6fd4" />
+
+<img width="736" height="176" alt="1000005284" src="https://github.com/user-attachments/assets/f5b5d311-796c-47d5-90b8-f70fa8aaaaa9" />
+
+<img width="736" height="149" alt="1000005287" src="https://github.com/user-attachments/assets/e8de0912-b872-4502-8771-50f6f6eefb51" />
+
+<img width="736" height="152" alt="1000005285" src="https://github.com/user-attachments/assets/d1af2d4c-a9b5-4590-acec-3e6ff3de6b02" />
+
+<img width="736" height="152" alt="1000005288" src="https://github.com/user-attachments/assets/127bac67-14b3-427e-a364-cb0ce71ea7fe" />
