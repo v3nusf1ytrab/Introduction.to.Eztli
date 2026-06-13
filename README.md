@@ -90,6 +90,9 @@ Thin Ices:
 ● Pro-Ren individuals in the pressure situation (WE are neutral btw.)
 
 
+<img width="2000" height="237" alt="1000005353" src="https://github.com/user-attachments/assets/aa9ec315-d6c3-4a49-a88b-790ca15cee30" />
+
+
 Selfships / Yumeships for our system;
 
 ● Killer!Sans from Something New — Sharing.
@@ -97,6 +100,9 @@ Selfships / Yumeships for our system;
 ● Nightmare!Sans from Dreamtale — Sharing. (We don't support Joku!! Ewww, joku, why you are darkshipper and abusive asshole, jokublogg... Eww, stinky.)
 
 CHAT, DW WE AREN'T WEIRD PLZZ. WE WON'T BE FREAKS IF YOU'RE A FICTIONKIN, COPINGLINK OR FICTIVE OF THEMM... We're a chill person, dw gang — we literally have too many fictives of Killer, ts crazy.
+
+
+<img width="480" height="20" alt="1000005350" src="https://github.com/user-attachments/assets/70b0f07f-8134-4632-a271-7ab8b96540c5" />
 
 
 Copinglinks for our system;
@@ -107,6 +113,7 @@ Copinglinks for our system;
 
 ● Lust!Sans from Underlust (Again, ew cuz darkshipper. We don't support the creator for this au. Yucky.)
 
+<img width="1280" height="152" alt="1000005351" src="https://github.com/user-attachments/assets/06b9aef2-ad55-42b3-9ccc-e8d3f0bdbd89" />
 
 Comfortkins for our system;
 
@@ -122,6 +129,8 @@ Comfortkins for our system;
 
 ● Killer!Sans from Something New  (</3)
 
+
+<img width="1280" height="194" alt="1000005352" src="https://github.com/user-attachments/assets/0ce924a9-3abf-499c-9b97-c22c6e637579" />
 
 
 Fandoms we are in:
