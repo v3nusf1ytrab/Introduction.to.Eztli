@@ -1,4 +1,5 @@
 # Introduction.to.Eztli
+
 Hello there!! My name's Eztli — or you can call me Wick. I also go by The Flytrap System as a system name!
 
 
@@ -6,35 +7,44 @@ I am a diagnosed DID system along with a dx'd ADHDer with heavily suspected Bord
 
 I, collectively, identify as Genderfluid (particularly Systemfluid), Pansexual and Ambiamorous! Overall, we would prefer genderneutrul (They/Them, It/Its) pronouns or plural (yall/yall's) pronouns when we don't tell who is actively interacting with you.   Please tell us if you have any questions about anything related to those things!
 
+<img width="400" height="30" alt="1000005347" src="https://github.com/user-attachments/assets/8baedc99-7909-4fec-a21a-e92aff6fffd8" />
+
 
 I thought I should give a list of the most common dissociative parts you may encounter!
 
 ￬￬￬
 
-● Flit (❤️)  ❯❯❯❯  Host of our subsystem called "Abstraction Collective", along with using the privated community terms.
+● Flit (❤️)  ❯❯❯❯  Host of our subsystem called "Abstraction Collective", along with using privated community terms.
 
 Flit is usually a IWEC (Interact with extreme caution) due to their privated roles.
+
 
 ● Coello (🐇) ❯❯❯❯ Host of the Multiversal Passage subsystem!! Along with being a Depression Holder (he experiences depressive episode more than the rest of us tldr)
 
 Coello is pretty chill!! But he does usually use IWC due to both obvious and unobvious reasons.
 
+
 ● Slasher (🎯) ❯❯❯❯ Co-Host to Coello while we also have them labeled as a "Protescutor" (both a Persecutor & Prosecutor) along with a Mania Holder (so like opposites with Coello, experiencing mania more than the rest of us)
 
 Due to multiple reasons; they are considered to be a IAYOR. (Interact at your own risk) 
+
 
 ● Lovesick (👾) ❯❯❯❯ The most often fronting part of the Loverboy Cave subsystem, role is privated due to privacy concerns and just overall safety.
 
 Lovesick is DNIUF (Do not interact unless friends) as to their role.
 
+<img width="1280" height="250" alt="1000005349" src="https://github.com/user-attachments/assets/5759492f-e13b-4e9c-9b67-25916e63265f" />
 
 Now onto the other stuff!!
 
 We are currently A MINOR. We are fine with being friends with 18+ (no over 24 though) individuals — as we quite literally have a lot of 18+ identifying alters — as long as you use clear, sfw boundaries towards us.
 (Our Gatekeepers and Protectors quite literally watch the front like a damn murder of crows and will just decide on an adjustment as a collective grouping if necessary. Stating as a Gatekeeper myself Xd -🖌)
 
-Speaking of such!! DNI & Thin Ices, smoke bombb! XD
 
+<img width="1280" height="156" alt="1000005348" src="https://github.com/user-attachments/assets/768b4a88-f75e-46cc-881a-0397b9c1ca37" />
+
+
+Speaking of such!! DNI & Thin Ices, smoke bombb! XD
 
 DNI:
 
@@ -65,6 +75,7 @@ DNI:
 ● Zoophiles, Zoosadists & Pedophiles (this includes shotos & lolicons)
 
 ● Karma from Ponytown + toxic friends of such
+
 
 
 Thin Ices:
@@ -154,20 +165,14 @@ Fandoms we are in:
 ● Genshin Impact (very barely)
 
 
-
-
-<img width="200" height="40" alt="1000005278" src="https://github.com/user-attachments/assets/05c9af6f-abbf-4abc-82bf-bc802e7fed83" />
-https://x.com/Flit_Is_Scuffed
-
-
-
-
 THIS IS A WIP PROJECT, WE'RE PROBABLY GOING TO CONTINUE??? MAYBE??? 
 Go to our straw․page for more information for now
 
 ￬￬￬
 
 https://th3traps3y3.straw.page
+
+(Most dividers used here are from: https://rentry.co/divsdivsdivs — credits to the creators!!)
 
 <img width="150" height="20" alt="1000005279" src="https://github.com/user-attachments/assets/73520cdc-a6b1-4d2f-89c9-6e2bfcc64d80" /> <img width="150" height="20" alt="1000005280" src="https://github.com/user-attachments/assets/6651514a-4cda-4787-b703-409c5343700f" />
 
