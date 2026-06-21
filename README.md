@@ -5,7 +5,7 @@ Hello there!! My name's Eztli — or you can call me Wick. I also go by The Flyt
 
 I am a diagnosed DID system along with a dx'd ADHDer with heavily suspected Borderpolar (Borderline Personality Disorder + Bipolar) and ASD. As our bio had already stated
 
-I, collectively, identify as Genderfluid (particularly Systemfluid), Pansexual and Ambiamorous! Overall, we would prefer genderneutrul (They/Them, It/Its) pronouns or plural (yall/yall's) pronouns when we don't tell who is actively interacting with you.   Please tell us if you have any questions about anything related to those things!
+I, collectively, identify as Genderfluid (particularly Systemfluid), Pansexual, Aroacefluid and Ambiamorous! Overall, we would prefer genderneutrul (They/Them, It/Its) pronouns or plural (yall/yall's) pronouns when we don't tell who is actively interacting with you.   Please tell us if you have any questions about anything related to those things!
 
 <img width="400" height="30" alt="1000005347" src="https://github.com/user-attachments/assets/8baedc99-7909-4fec-a21a-e92aff6fffd8" />
 
