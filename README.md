@@ -5,7 +5,19 @@ Hello there!! My name's Eztli — or you can call me Wick. I also go by The Flyt
 
 I am a diagnosed DID system along with a dx'd ADHDer with heavily suspected Borderpolar (Borderline Personality Disorder + Bipolar) and ASD. As our bio had already stated
 
-I, collectively, identify as Genderfluid (particularly Systemfluid), Pansexual, Aroacefluid and Ambiamorous! Overall, we would prefer genderneutrul (They/Them, It/Its) pronouns or plural (yall/yall's) pronouns when we don't tell who is actively interacting with you.   Please tell us if you have any questions about anything related to those things!
+I, collectively, identify as Genderfluid (particularly Systemfluid due, well... Ya know being a multiple), Pansexual, Aroacefluid and Ambiamorous! 
+
+<img width="40" height="40" alt="1000005509" src="https://github.com/user-attachments/assets/1082d4e1-8942-4dc2-8371-d70749ba2558" />
+<img width="40" height="40" alt="1000005508" src="https://github.com/user-attachments/assets/7a4669f4-ee68-4208-a09f-7e443b0dfe47" />
+<img width="40" height="40" alt="1000005507" src="https://github.com/user-attachments/assets/0946b42b-8c46-4573-9f98-c43d29cc31fd" />
+<img width="40" height="40" alt="1000005506" src="https://github.com/user-attachments/assets/0bf47bd9-bbd3-4c6f-ba67-c2fbe2f23b67" />
+<img width="40" height="40" alt="1000005505" src="https://github.com/user-attachments/assets/7bcf069a-ad77-4702-8096-a3777ec3dab4" />
+
+Overall, we would prefer genderneutrul (They/Them, It/Its) pronouns or plural (yall/yall's) pronouns when we don't tell who is actively interacting with you.   
+(For more information on this stuff, go to our pronouns․page which is in our links!)
+
+Please tell us if you have any questions about anything related to those things!
+
 
 <img width="400" height="30" alt="1000005347" src="https://github.com/user-attachments/assets/8baedc99-7909-4fec-a21a-e92aff6fffd8" />
 
