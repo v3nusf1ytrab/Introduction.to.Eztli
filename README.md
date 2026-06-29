@@ -214,50 +214,53 @@ $${\color{#BAEB1B}\text{origin in us as well..?}}$$
 
 <img width="2048" height="136" alt="1000005555" src="https://github.com/user-attachments/assets/69dafdde-1624-4f7a-bc42-cb2338976a29" />
 
+$${\color{grey}\text{NOW. Important stuff, read the following FULLY. Thank you!}}$$
 
-Speaking of such!! DNI & Thin Ices, smoke bombb! XD
+$${\color{#CC160D}\text{DNI:}}$$
 
-DNI:
+$${\color{#CC160D}\text{● People over 24 / under 12!}}$$
+$${\color{#CC160D}\text{● Endogentic, Willogentic, Mixed}}$$
+$${\color{#CC160D}\text{origined or anything other version}}$$
+$${\color{#CC160D}\text{"systems/plurals"}}$$
+$${\color{#CC160D}\text{● Pro-endogentic systems}}$$
+$${\color{#CC160D}\text{/plurals/multiples.}}$$
+$${\color{#CC160D}\text{● People who call themselves "Polymind"}}$$
+$${\color{#CC160D}\text{● Proshippers, Darkshippers and}}$$
+$${\color{#CC160D}\text{Dark Comshippers}}$$
+$${\color{#CC160D}\text{● Anti/neutral-woke individuals.}}$$
+$${\color{#CC160D}\text{● Anti-vax individuals.}}$$
+$${\color{#CC160D}\text{● ABDL, Diaperfurs and Babyfurs.}}$$
+$${\color{#CC160D}\text{● NSFW "littlespaces" / "petspaces"}}$$
+$${\color{#CC160D}\text{● Age and Pet players.}}$$
+$${\color{#CC160D}\text{● Racist, Ableist, anti/neut-LGBTQIA+,}}$$
+$${\color{#CC160D}\text{Ageist and Sexist individuals}}$$
+$${\color{#CC160D}\text{● Zoophile, Pedophile and}}$$
+$${\color{#CC160D}\text{Rapist supporters}}$$
+$${\color{#CC160D}\text{● Zoophiles, Zoosadists and}}$$
+$${\color{#CC160D}\text{Pedophiles (this includes}}$$
+$${\color{#CC160D}\text{shotos and lolicons)}}$$
 
-● People over 24 / under 12!
+$${\color{#CC160D}\text{Blacklist with reason:}}$$
 
-● Endogentic, Willogentic, Mixed origined or anything other version "systems/plurals"
-
-● Pro-endogentic systems/plurals/multiples.
-
-● People who call themselves "Polymind"
-
-● Proshippers, Darkshippers & Dark Comshippers
-
-● Anti/neutral-woke individuals.
-
-● Anti-vax individuals.
-
-● ABDL, Diaperfurs & Babyfurs.
-
-● NSFW "littlespaces" / "petspaces"
-
-● Age & Pet players.
-
-● Racist, Ableist, anti-LGBTQIA+ & Sexist individuals
-
-● Zoophile, Pedophile & Rapist supporters
-
-● Zoophiles, Zoosadists & Pedophiles (this includes shotos & lolicons)
-
-● Karma from Ponytown + toxic friends of such
+$${\color{#CC160D}\text{● Karma from Ponytown}}$$
+$${\color{#CC160D}\text{+ toxic friends of such}}$$
+$${\color{#CC160D}\text{(Told us to do it, kill ourself, after ❤️ was}}$$
+$${\color{#CC160D}\text{trying to rehabilitate a 10-11 y.o darkshipper}}$$
+$${\color{#CC160D}\text{after they, as a group, were harassing such}}$$
+$${\color{#CC160D}\text{and telling the CHILD to hurt themself)}}$$
 
 
+$${\color{#BAEB1B}\text{Thin Ices:}}$$
 
-Thin Ices:
-
-● Anti-AI(- AI"art") AND Pro-AI individuals
-
-● Systems who use the term RAMCOA 
-(we believe yall but holy shit... Using a term for trauma, for a disorder that's already about having severe, complicated trauma? Very "I have more trauma than you!!" and disheartening. Coming from someone who experienced the OA part of the term!!)
-
-● People who say self/yumeshipping with a character is the bad version of parasocial behavior
-
-● Pro-Ren individuals in the pressure situation (WE are neutral btw.)
-
-<img width="480" height="20" alt="1000005356" src="https://github.com/user-attachments/assets/55a1296e-e559-4432-a277-4c204a7ea844" />
+$${\color{#BAEB1B}\text{● Anti-AI(- AI"art") AND Pro-AI individuals}}$$
+$${\color{#BAEB1B}\text{● Systems who use the term RAMCOA (we}}$$
+$${\color{#BAEB1B}\text{believe yall but holy shit... Using a term for trauma,}}$$
+$${\color{#BAEB1B}\text{for a disorder that's already about having severe,}}$$
+$${\color{#BAEB1B}\text{complicated trauma? Very "I have more trauma}}$$
+$${\color{#BAEB1B}\text{than you!!" and disheartening. Coming from someone}}$$
+$${\color{#BAEB1B}\text{who experienced the OA part of the term!!)}}$$
+$${\color{#BAEB1B}\text{● People who say self/yumeshipping}}$$
+$${\color{#BAEB1B}\text{with a character is the bad version}}$$
+$${\color{#BAEB1B}\text{of parasocial behavior}}$$
+$${\color{#BAEB1B}\text{● Pro-Ren individuals in}}$$
+$${\color{#BAEB1B}\text{the pressure situation (WE are neutral btw.)}}$$
