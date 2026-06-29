@@ -21,11 +21,11 @@ $${\color{#66C51E}\text{Personality Disorder + Bipolar) and Autism!}}$$
 $${\color{#66C51E}\text{As our bio had already stated.}}$$
 
 
-$${\color{purple}\text{Collectively, I Identify as;}}$$
-$${\color{purple}\text{Genderfluid, Systemfluid, Pansexual,}}$$
-$${\color{purple}\text{Aroacefluid and Ambiamorous <3}}$$
+$${\color{#671FDA}\text{Collectively, I Identify as;}}$$
+$${\color{#671FDA}\text{Genderfluid, Systemfluid, Pansexual,}}$$
+$${\color{#671FDA}\text{Aroacefluid and Ambiamorous <3}}$$
 
-$${\color{purple}\text{Flags for my identities:}}$$ 
+$${\color{#671FDA}\text{Flags for my identities:}}$$ 
 
 <img width="40" height="40" alt="1000005509" src="https://github.com/user-attachments/assets/1082d4e1-8942-4dc2-8371-d70749ba2558" />
 
@@ -37,25 +37,36 @@ $${\color{purple}\text{Flags for my identities:}}$$
 
 <img width="40" height="40" alt="1000005505" src="https://github.com/user-attachments/assets/7bcf069a-ad77-4702-8096-a3777ec3dab4" />
 
-$${\color{pink}\text{When it comes to pronouns, it changes}}$$
-$${\color{pink}\text{explicitly depending on the dissociative}}$$
-$${\color{pink}\text{part(s) in front — so it changes a lot.}}$$
+$${\color{#CF28BC}\text{When it comes to pronouns, it changes}}$$
+$${\color{#CF28BC}\text{explicitly depending on the dissociative}}$$
+$${\color{#CF28BC}\text{part(s) in front — so it changes a lot.}}$$
 
-$${\color{pink}\text{But overall, we would prefer genderneutrul}}$$
-$${\color{pink}\text{(They/Them, It/Its, neopronouns) pronouns or plural (yall/yall's) pronouns}}$$
-$${\color{pink}\text{when we don't tell who is actively interacting}}$$
-$${\color{pink}\text{with you. However, my friends have some}}$$
-$${\color{pink}\text{changes to that ruling. (Check our}}$$
-$${\color{pink}\text{pronouns.page for more information, it's in}}$$
-$${\color{pink}\text{our links!)}}$$
+$${\color{#CF28BC}\text{But overall, we would prefer genderneutrul}}$$
+$${\color{#CF28BC}\text{(They/Them, It/Its, neopronouns) pronouns or plural (yall/yall's) pronouns}}$$
+$${\color{#CF28BC}\text{when we don't tell who is actively interacting}}$$
+$${\color{#CF28BC}\text{with you. However, my friends have some}}$$
+$${\color{#CF28BC}\text{changes to that ruling. (Check our}}$$
+$${\color{#CF28BC}\text{pronouns.page for more information, it's in}}$$
+$${\color{#CF28BC}\text{our links!)}}$$
 
 
 <img width="1280" height="250" alt="1000005349" src="https://github.com/user-attachments/assets/5759492f-e13b-4e9c-9b67-25916e63265f" />
 
-Now onto the other stuff!!
+$${\color{#66C51E}\text{Age Related Stuff:}}$$
+$${\color{#66C51E}\text{● We are currently bodily a MINOR.}}$$
+$${\color{#66C51E}\text{● We are fine with being friends with 18+}}$$
+$${\color{#66C51E}\text{individuals as long as they aren't over 24}}$$
+$${\color{#66C51E}\text{ALONG with making clear, sfw boundaries}}$$
+$${\color{#66C51E}\text{with us. If such doesn't do that, we WILL be}}$$
+$${\color{#66C51E}\text{blocking if need be.}}$$
 
-We are currently A MINOR. We are fine with being friends with 18+ (no over 24 though) individuals — as we quite literally have a lot of 18+ identifying alters — as long as you use clear, sfw boundaries towards us.
-(Our Gatekeepers and Protectors quite literally watch the front like a damn murder of crows and will just decide on an adjustment as a collective grouping if necessary. Stating as a Gatekeeper myself Xd -🖌)
+$${\color{#66C51E}\text{Added comment by 🖌 (proxied for privacy:}}$$
+$${\color{#66C51E}\text{Our Gatekeepers and Protectors quite}}$$
+$${\color{#66C51E}\text{literally watch the front like a damn}}$$
+$${\color{#66C51E}\text{murder of crows and will just decide on an}}$$
+$${\color{#66C51E}\text{adjustment as a collective grouping if}}$$
+$${\color{#66C51E}\text{necessary. Stating as a Gatekeeper myself}}$$
+$${\color{#66C51E}\text{Xd}}$$
 
 
 <img width="1280" height="156" alt="1000005348" src="https://github.com/user-attachments/assets/768b4a88-f75e-46cc-881a-0397b9c1ca37" />
