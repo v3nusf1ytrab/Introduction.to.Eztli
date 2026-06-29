@@ -1,6 +1,6 @@
 ![](https://komarev.com/ghpvc/?username=v3nusf1ytrab)
 
-Hello there!! My name's Eztli — or you can call me Wick. I also go by The Flytrap System as a system name!
+$${\color{green}\text{Hello there!! My name's Eztli — or you can call me Wick. I also go by The Flytrap System as a system name! }}$$ 
 
 
 I am a diagnosed DID system along with a dx'd ADHDer with heavily suspected Borderpolar (Borderline Personality Disorder + Bipolar) and ASD. As our bio had already stated
