@@ -164,6 +164,34 @@ $${\color{#0CD2BB}\text{Spiritual Theriotype(s): Homing pigeon}}$$
 <img width="2048" height="136" alt="1000005555" src="https://github.com/user-attachments/assets/69dafdde-1624-4f7a-bc42-cb2338976a29" />
 
 
+$${\color{#66C51E}\text{We often don't like being touched / hidden}}$$
+$${\color{#66C51E}\text{purposefully on Ponytown, Vrchat and in}}$$
+$${\color{#66C51E}\text{general. This really depends on the}}$$
+$${\color{#66C51E}\text{dissociative part(s) in front — some are}}$$
+$${\color{#66C51E}\text{okay with strangers, some are only allowing to people we have interacted with before and many are only allowing}}$$
+$${\color{#66C51E}\text{to friends.}}$$
+
+$${\color{#66C51E}\text{"But this is the internet??? Are you one of}}$$
+$${\color{#66C51E}\text{those losers?" Yes, we are "one of those}}$$
+$${\color{#66C51E}\text{losers", the following are connected with}}$$
+$${\color{#66C51E}\text{each other but are listed out for uhh... Idk,}}$$
+$${\color{#66C51E}\text{transparency?}}$$
+
+$${\color{#66C51E}\text{●Many of us have a touch trigger, this is due}}$$
+$${\color{#66C51E}\text{to our trauma — which will not be stated}}$$
+$${\color{#66C51E}\text{here but we are very overall open about it.}}$$
+
+$${\color{#66C51E}\text{●All dissociative parts of me have some}}$$
+$${\color{#66C51E}\text{sort of Synesthesia, particularly of smelling,}}$$
+$${\color{#66C51E}\text{hearing, sight and touch. What Synesthesia}}$$
+$${\color{#66C51E}\text{is; Synesthesia is a condition that involves a}}$$
+$${\color{#66C51E}\text{mixing of the senses. It occurs when one}}$$
+$${\color{#66C51E}\text{sense is activated and another unrelated}}$$
+$${\color{#66C51E}\text{sense is activated at the same time.}}$$
+
+
+<img width="2048" height="136" alt="1000005554" src="https://github.com/user-attachments/assets/23b88bd0-eadb-4a53-b998-85bdf61d50bb" />
+
 
 Speaking of such!! DNI & Thin Ices, smoke bombb! XD
 
@@ -209,11 +237,6 @@ Thin Ices:
 ● People who say self/yumeshipping with a character is the bad version of parasocial behavior
 
 ● Pro-Ren individuals in the pressure situation (WE are neutral btw.)
-
-
-<img width="1280" height="151" alt="1000005354" src="https://github.com/user-attachments/assets/043d93bf-a7c3-41dc-8af5-e38f9d05548b" />
-
-We usually don't like being touched on Ponytown (or in general on the internet) by people who we have never interacted with before / people we aren't friends with. "But this is the internet??? Are you one of those losers?" Yes, we are "one of those losers" as we have a form(s) of Synesthesia — particularly towards the senses of touch, sight and hearing. "What is Synesthesia?" Idk how to explain it here but please look into it, it's actually VERY interesting as a topic!!
 
 <img width="480" height="20" alt="1000005356" src="https://github.com/user-attachments/assets/55a1296e-e559-4432-a277-4c204a7ea844" />
 
