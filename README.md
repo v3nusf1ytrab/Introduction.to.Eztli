@@ -3,24 +3,29 @@
 
 <img width="1300" height="1300" alt="1000005553" src="https://github.com/user-attachments/assets/96ebf972-c002-440b-ba58-afd43293194d" />
 
-$${\color{red}\text{Overlay above: from Pinterest}}$$
-$${\color{red}\text{Art above: made by us, DO NOT REPOST OR}}$$
-$${\color{red}\text{ USE WITHOUT EXPLICIT PERMISSION!}}$$
+$${\color{#CC160D}\text{Overlay above: from Pinterest}}$$
+$${\color{#CC160D}\text{Art above: made by us, DO NOT REPOST OR}}$$
+$${\color{#CC160D}\text{ USE WITHOUT EXPLICIT PERMISSION!}}$$
 
 
-$${\color{green}\text{Hello there!! My name's Eztli and/or Wick!}}$$
-$${\color{green}\text{I also go by The Flytrap System as a system}}$$
-$${\color{green}\text{name! You may also see my friends}}$$
-$${\color{green}\text{call me Eternal! :) }}$$ 
+$${\color{#1D9614}\text{Hello there!! My name's Eztli and/or Wick!}}$$
+$${\color{#1D9614}\text{I also go by The Flytrap System as a system}}$$
+$${\color{#1D9614}\text{name! You may also see my friends}}$$
+$${\color{#1D9614}\text{call me Eternal! :) }}$$ 
 
 
-$${\color{lime}\text{I have diagnosed Dissociative Identity}}$$
-$${\color{lime}\text{Disorder (DID) and ADHD, along with heavily}}$$
-$${\color{lime}\text{suspected Borderpolar (Borderline}}$$
-$${\color{lime}\text{Personality Disorder + Bipolar) and Autism!}}$$
-$${\color{lime}\text{As our bio had already stated.}}$$
+$${\color{#66C51E}\text{I have diagnosed Dissociative Identity}}$$
+$${\color{#66C51E}\text{Disorder (DID) and ADHD, along with heavily}}$$
+$${\color{#66C51E}\text{suspected Borderpolar (Borderline}}$$
+$${\color{#66C51E}\text{Personality Disorder + Bipolar) and Autism!}}$$
+$${\color{#66C51E}\text{As our bio had already stated.}}$$
 
-I — collectively — identify as Genderfluid (particularly Systemfluid cuz, ya know, being a multiple), Pansexual, Aroacefluid and Ambiamorous! 
+
+$${\color{purple}\text{Collectively, I Identify as;}}$$
+$${\color{purple}\text{Genderfluid, Systemfluid, Pansexual,}}$$
+$${\color{purple}\text{Aroacefluid and Ambiamorous <3}}$$
+
+$${\color{purple}\text{Flags for my identities:}}$$ 
 
 <img width="40" height="40" alt="1000005509" src="https://github.com/user-attachments/assets/1082d4e1-8942-4dc2-8371-d70749ba2558" />
 
@@ -32,12 +37,17 @@ I — collectively — identify as Genderfluid (particularly Systemfluid cuz, ya
 
 <img width="40" height="40" alt="1000005505" src="https://github.com/user-attachments/assets/7bcf069a-ad77-4702-8096-a3777ec3dab4" />
 
+$${\color{pink}\text{When it comes to pronouns, it changes}}$$
+$${\color{pink}\text{explicitly depending on the dissociative}}$$
+$${\color{pink}\text{part(s) in front — so it changes a lot.}}$$
 
-
-Overall, we would prefer genderneutrul (They/Them, It/Its) pronouns or plural (yall/yall's) pronouns when we don't tell who is actively interacting with you.   
-(For more information on this stuff, go to our pronouns․page which is in our links!)
-
-Please tell us if you have any questions about anything related to those things!
+$${\color{pink}\text{But overall, we would prefer genderneutrul}}$$
+$${\color{pink}\text{(They/Them, It/Its, neopronouns) pronouns or plural (yall/yall's) pronouns}}$$
+$${\color{pink}\text{when we don't tell who is actively interacting}}$$
+$${\color{pink}\text{with you. However, my friends have some}}$$
+$${\color{pink}\text{changes to that ruling. (Check our}}$$
+$${\color{pink}\text{pronouns.page for more information, it's in}}$$
+$${\color{pink}\text{our links!)}}$$
 
 
 <img width="1280" height="250" alt="1000005349" src="https://github.com/user-attachments/assets/5759492f-e13b-4e9c-9b67-25916e63265f" />
