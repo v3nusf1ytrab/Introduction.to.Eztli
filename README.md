@@ -8,16 +8,17 @@ $${\color{red}\text{Art above: made by us, DO NOT REPOST OR}}$$
 $${\color{red}\text{ USE WITHOUT EXPLICIT PERMISSION!}}$$
 
 
-$${\color{green}\text{Hello there!! My name's Eztli — or you can}}$$
-$${\color{green}\text{call me Wick. I also go by The Flytrap}}$$
-$${\color{green}\text{System as a system name!}}$$ 
+$${\color{green}\text{Hello there!! My name's Eztli and/or Wick!}}$$
+$${\color{green}\text{I also go by The Flytrap System as a system}}$$
+$${\color{green}\text{name! You may also see my friends}}$$
+$${\color{green}\text{call me Eternal! :) }}$$ 
 
 
-$${\color{lime}\text{I am a diagnosed DID system along with a}}$$
-$${\color{lime}\text{dx'd ADHDer with heavily suspected}}$$
-$${\color{lime}\text{Borderpolar (Borderline Personality Disorder}}$$
-$${\color{lime}\text{+ Bipolar) and ASD. As our bio had already}}$$
-$${\color{lime}\text{stated}}$$
+$${\color{lime}\text{I have diagnosed Dissociative Identity}}$$
+$${\color{lime}\text{Disorder (DID) and ADHD, along with heavily}}$$
+$${\color{lime}\text{suspected Borderpolar (Borderline}}$$
+$${\color{lime}\text{Personality Disorder + Bipolar) and Autism!}}$$
+$${\color{lime}\text{As our bio had already stated.}}$$
 
 I — collectively — identify as Genderfluid (particularly Systemfluid cuz, ya know, being a multiple), Pansexual, Aroacefluid and Ambiamorous! 
 
