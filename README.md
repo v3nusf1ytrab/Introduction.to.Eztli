@@ -81,6 +81,36 @@ $${\color{#CC160D}\text{scribally / verbally to back off if needed, just}}$$
 $${\color{#CC160D}\text{also keep in mind to do it respectfully}}$$
 $${\color{#CC160D}\text{and clear to understand.}}$$
 
+$${\color{#CF28BC}\text{Selfships / Yumeships for our system;}}$$
+$${\color{#CF28BC}\text{● Killer!Sans from Something New —}}$$
+$${\color{#CF28BC}\text{Sharing}}$$
+$${\color{#CF28BC}\text{● Nightmare!Sans from Dreamtale —}}$$
+$${\color{#CF28BC}\text{Sharing. (We don't support Joku!! Ewww,}}$$
+$${\color{#CF28BC}\text{joku, why you are darkshipper and abusive}}$$
+$${\color{#CF28BC}\text{asshole, jokublogg... Eww, stinky.)}}$$
+
+$${\color{#671FDA}\text{Comfortkins for our system;}}$$
+$${\color{#671FDA}\text{● Reaper!Sans from Reapertale}}$$
+$${\color{#671FDA}\text{(We don't support the creator!!}}$$
+$${\color{#671FDA}\text{Cuz we heard that they did some}}$$
+$${\color{#671FDA}\text{predatory shit, so nahhh...)}}$$
+
+$${\color{#671FDA}\text{● Lulu, Lucelia and Lucifer by Luluyam}}$$
+$${\color{#671FDA}\text{(ALL HAIL MOTHER ROACHHHH!!!! lol)}}$$
+
+$${\color{#671FDA}\text{● Eternal Sugar Cookie (We}}$$
+$${\color{#671FDA}\text{don't like the stuff going on in}}$$
+$${\color{#671FDA}\text{the fandom and by the discords atp...)}}$$
+
+$${\color{#671FDA}\text{● Sun and Moon from FNAF (WE DON'T}}$$
+$${\color{#671FDA}\text{SUPPORT SCOTT. HOLY SHIT, WTF MAN. IM}}$$
+$${\color{#671FDA}\text{GOING TO DIE, WHY IS HE A TRUMP}}$$
+$${\color{#671FDA}\text{SUPPORTER???)}}$$
+
+$${\color{#671FDA}\text{● Discord from MLP}}$$ 
+
+$${\color{#671FDA}\text{● Killer!Sans from Something New}}$$
+
 Speaking of such!! DNI & Thin Ices, smoke bombb! XD
 
 DNI:
@@ -139,23 +169,6 @@ Copinglinks for our system;
 ● Horror!Sans from Horrortale (ewwww, SourAppleStudios following after Joku with the darkshippingg, ewww... Trashcan for Sourr...)
 
 ● Lust!Sans from Underlust (Again, ew cuz darkshipper. We don't support the creator for this au. Yucky.)
-
-<img width="1280" height="152" alt="1000005351" src="https://github.com/user-attachments/assets/06b9aef2-ad55-42b3-9ccc-e8d3f0bdbd89" />
-
-Comfortkins for our system;
-
-● Reaper!Sans from Reapertale (We don't support the creator!! Cuz we heard that they did some predator shit, so nahhh...)
-
-● Lulu, Lucelia and Lucifer by Luluyam (ALL HAIL MOTHER ROACHHHH!!!! lol)
-
-● Eternal Sugar Cookie (We don't like the stuff going on in the fandom and by the discords atp...)
-
-● Sun & Moon from FNAF (WE DON'T SUPPORT SCOTT. HOLY SHIT, WTF MAN. IM GOING TO DIE, WHY IS HE A TRUMP SUPPORTER???)
-
-● Discord from MLP 
-
-● Killer!Sans from Something New  (</3)
-
 
 <img width="1280" height="194" alt="1000005352" src="https://github.com/user-attachments/assets/0ce924a9-3abf-499c-9b97-c22c6e637579" />
 
