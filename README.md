@@ -84,6 +84,7 @@ $${\color{#CC160D}\text{and clear to understand.}}$$
 $${\color{#CF28BC}\text{Selfships / Yumeships for our system;}}$$
 $${\color{#CF28BC}\text{● Killer!Sans from Something New —}}$$
 $${\color{#CF28BC}\text{Sharing}}$$
+
 $${\color{#CF28BC}\text{● Nightmare!Sans from Dreamtale —}}$$
 $${\color{#CF28BC}\text{Sharing. (We don't support Joku!! Ewww,}}$$
 $${\color{#CF28BC}\text{joku, why you are darkshipper and abusive}}$$
@@ -110,6 +111,40 @@ $${\color{#671FDA}\text{SUPPORTER???)}}$$
 $${\color{#671FDA}\text{● Discord from MLP}}$$ 
 
 $${\color{#671FDA}\text{● Killer!Sans from Something New}}$$
+
+$${\color{#1321E0}\text{Copinglinks for our system;}}$$
+$${\color{#1321E0}\text{● Dust/Murder!Sans from Dusttale}}$$
+
+$${\color{#1321E0}\text{● Horror!Sans from Horrortale (ewwww,}}$$
+$${\color{#1321E0}\text{SourAppleStudios following after Joku with}}$$
+$${\color{#1321E0}\text{the darkshippingg, ewww... Trashcan for}}$$
+$${\color{#1321E0}\text{SourrAppleStudioss...)}}$$
+
+$${\color{#1321E0}\text{● Lust!Sans from Underlust (Again, ew cuz}}$$
+$${\color{#1321E0}\text{darkshipper. We don't support the creator}}$$
+$${\color{#1321E0}\text{for this au. Yucky.)}}$$
+
+<img width="2048" height="136" alt="1000005555" src="https://github.com/user-attachments/assets/69dafdde-1624-4f7a-bc42-cb2338976a29" />
+
+$${\color{#1D9614}\text{Fandoms I am in:}}$$
+$${\color{#1D9614}\text{UT/DT/UTMV}}$$
+$${\color{#1D9614}\text{(Undertale/Deltarune/Undertale Multiverse),}}$$
+$${\color{#1D9614}\text{COTL (Cult of The Lamb), Slay The Princess,}}$$
+$${\color{#1D9614}\text{Analog Horror, Cookie Run, Pokémon,}}$$
+$${\color{#1D9614}\text{Warrior Cats, SCP, DW (Dandy's World), MLP}}$$
+$${\color{#1D9614}\text{(My Little Pony), FNAF (Five Nights at}}$$
+$${\color{#1D9614}\text{Freddy's), Amanda The Adventurer,}}$$
+$${\color{#1D9614}\text{Mouthwashing, TFC (The Freak Circus),}}$$
+$${\color{#1D9614}\text{Kingergarten, Freakshow, Everything Is Fine,}}$$
+$${\color{#1D9614}\text{House of Paso and Genshin Impact}}$$
+
+$${\color{#CC160D}\text{ALL PROBLEMATIC FANDOMS / CREATORS}}$$
+$${\color{#CC160D}\text{— we do NOT support. We only allow ourself}}$$
+$${\color{#CC160D}\text{to be in the fandoms as long as the}}$$
+$${\color{#CC160D}\text{problematic stuff is NOT in the}}$$
+$${\color{#CC160D}\text{series/game/etc.}}$$
+
+
 
 Speaking of such!! DNI & Thin Ices, smoke bombb! XD
 
@@ -156,62 +191,6 @@ Thin Ices:
 
 ● Pro-Ren individuals in the pressure situation (WE are neutral btw.)
 
-
-<img width="2000" height="237" alt="1000005353" src="https://github.com/user-attachments/assets/aa9ec315-d6c3-4a49-a88b-790ca15cee30" />
-
-<img width="480" height="20" alt="1000005350" src="https://github.com/user-attachments/assets/70b0f07f-8134-4632-a271-7ab8b96540c5" />
-
-
-Copinglinks for our system;
-
-● Dust/Murder!Sans from Dusttale 
-
-● Horror!Sans from Horrortale (ewwww, SourAppleStudios following after Joku with the darkshippingg, ewww... Trashcan for Sourr...)
-
-● Lust!Sans from Underlust (Again, ew cuz darkshipper. We don't support the creator for this au. Yucky.)
-
-<img width="1280" height="194" alt="1000005352" src="https://github.com/user-attachments/assets/0ce924a9-3abf-499c-9b97-c22c6e637579" />
-
-
-Fandoms we are in:
-
-● Undertale & Deltarune (+ UTMV)
-
-● Cult of The Lamb (COTL)
-
-● Slay The Princess
-
-● Analog Horror
-
-● Cookie Run (very barely)
-
-● Pokemon
-
-●Warrior Cats
-
-● SCP
-
-● Dandy's World (barely)
-
-● My Little Pony (MLP + barely)
-
-● Five Nights at Freddy's (FNAF + barely)
-
-● Amanda The Adventurer
-
-● Mouthwashing
-
-● The Freak Circus (barely)
-
-● Kingergarten
-
- ●Freakshow (By Rexiipher on YT)
-
-● Everything is Fine (A webtoon)
-
-● House of Paso (very barely, this fandom fucking sucks but we love the series.)
-
-● Genshin Impact (very barely)
 
 <img width="1280" height="151" alt="1000005354" src="https://github.com/user-attachments/assets/043d93bf-a7c3-41dc-8af5-e38f9d05548b" />
 
