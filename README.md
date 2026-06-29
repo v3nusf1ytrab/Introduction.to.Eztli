@@ -145,6 +145,25 @@ $${\color{#CC160D}\text{problematic stuff is NOT in the}}$$
 $${\color{#CC160D}\text{series/game/etc.}}$$
 
 
+<img width="2048" height="136" alt="1000005554" src="https://github.com/user-attachments/assets/23b88bd0-eadb-4a53-b998-85bdf61d50bb" />
+
+
+$${\color{#0CD2BB}\text{We are a therian, particularly a polytherian}}$$
+$${\color{#0CD2BB}\text{(more than one theriotype), the following are}}$$
+$${\color{#0CD2BB}\text{our theriotypes!}}$$
+$${\color{#0CD2BB}\text{Physical Theriotype(s): Batearred fox and}}$$
+$${\color{#0CD2BB}\text{The Irish Goat}}$$
+$${\color{#0CD2BB}\text{(Added comment by 💛: If you have a}}$$
+$${\color{#0CD2BB}\text{problem with physical therians, get the fuck}}$$
+$${\color{#0CD2BB}\text{off our pages. Thanks.)}}$$
+$${\color{#0CD2BB}\text{Psychological Theriotype(s): English Mastiff}}$$
+$${\color{#0CD2BB}\text{and The Czechoslovakian Wolfdog}}$$
+$${\color{#0CD2BB}\text{Spiritual Theriotype(s): Homing pigeon}}$$
+
+
+<img width="2048" height="136" alt="1000005555" src="https://github.com/user-attachments/assets/69dafdde-1624-4f7a-bc42-cb2338976a29" />
+
+
 
 Speaking of such!! DNI & Thin Ices, smoke bombb! XD
 
@@ -195,16 +214,6 @@ Thin Ices:
 <img width="1280" height="151" alt="1000005354" src="https://github.com/user-attachments/assets/043d93bf-a7c3-41dc-8af5-e38f9d05548b" />
 
 We usually don't like being touched on Ponytown (or in general on the internet) by people who we have never interacted with before / people we aren't friends with. "But this is the internet??? Are you one of those losers?" Yes, we are "one of those losers" as we have a form(s) of Synesthesia — particularly towards the senses of touch, sight and hearing. "What is Synesthesia?" Idk how to explain it here but please look into it, it's actually VERY interesting as a topic!!
-
-<img width="640" height="64" alt="1000005355" src="https://github.com/user-attachments/assets/ebf2cac8-7aed-4ed1-aeb7-45c9c487ddd6" />
-
-We ARE a polytherian (more than one theriotype), the following are our theriotypes!
-
-Physical Theriotype(s): Batearred fox & The Irish Goat
-
-Psychological Theriotype(s): English Mastiff & The Czechoslovakian Wolfdog
-
-Spiritual Theriotype(s): Homing pigeon
 
 <img width="480" height="20" alt="1000005356" src="https://github.com/user-attachments/assets/55a1296e-e559-4432-a277-4c204a7ea844" />
 
