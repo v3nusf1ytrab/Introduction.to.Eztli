@@ -7,18 +7,21 @@ $${\color{#CC160D}\text{Overlay above: from Pinterest}}$$
 $${\color{#CC160D}\text{Art above: made by us, DO NOT REPOST OR}}$$
 $${\color{#CC160D}\text{ USE WITHOUT EXPLICIT PERMISSION!}}$$
 
+<img width="2048" height="136" alt="1000005555" src="https://github.com/user-attachments/assets/4ae2bb45-3d0f-4146-af33-7b48613d870d" />
+
 
 $${\color{#1D9614}\text{Hello there!! My name's Eztli and/or Wick!}}$$
 $${\color{#1D9614}\text{I also go by The Flytrap System as a system}}$$
 $${\color{#1D9614}\text{name! You may also see my friends}}$$
 $${\color{#1D9614}\text{call me Eternal! :) }}$$ 
 
-
 $${\color{#66C51E}\text{I have diagnosed Dissociative Identity}}$$
 $${\color{#66C51E}\text{Disorder (DID) and ADHD, along with heavily}}$$
 $${\color{#66C51E}\text{suspected Borderpolar (Borderline}}$$
 $${\color{#66C51E}\text{Personality Disorder + Bipolar) and Autism!}}$$
 $${\color{#66C51E}\text{As our bio had already stated.}}$$
+
+<img width="2048" height="136" alt="1000005554" src="https://github.com/user-attachments/assets/928ac1c7-08c4-43d1-affb-c6c74077f603" />
 
 
 $${\color{#671FDA}\text{Collectively, I Identify as;}}$$
@@ -50,7 +53,8 @@ $${\color{#CF28BC}\text{pronouns.page for more information, it's in}}$$
 $${\color{#CF28BC}\text{our links!)}}$$
 
 
-<img width="1280" height="250" alt="1000005349" src="https://github.com/user-attachments/assets/5759492f-e13b-4e9c-9b67-25916e63265f" />
+<img width="2048" height="136" alt="1000005555" src="https://github.com/user-attachments/assets/69dafdde-1624-4f7a-bc42-cb2338976a29" />
+
 
 $${\color{#66C51E}\text{Age Related Stuff:}}$$
 $${\color{#66C51E}\text{● We are currently bodily a MINOR.}}$$
@@ -68,9 +72,14 @@ $${\color{#66C51E}\text{adjustment as a collective grouping if}}$$
 $${\color{#66C51E}\text{necessary. Stating as a Gatekeeper myself}}$$
 $${\color{#66C51E}\text{Xd}}$$
 
+<img width="2048" height="136" alt="1000005554" src="https://github.com/user-attachments/assets/23b88bd0-eadb-4a53-b998-85bdf61d50bb" />
 
-<img width="1280" height="156" alt="1000005348" src="https://github.com/user-attachments/assets/768b4a88-f75e-46cc-881a-0397b9c1ca37" />
-
+$${\color{#CC160D}\text{Before this part continues, do keep in mind}}$$
+$${\color{#CC160D}\text{of if this stuff makes you uncomfortable}}$$
+$${\color{#CC160D}\text{— we completely understand and do tell us}}$$
+$${\color{#CC160D}\text{scribally / verbally to back off if needed, just}}$$
+$${\color{#CC160D}\text{also keep in mind to do it respectfully}}$$
+$${\color{#CC160D}\text{and clear to understand.}}$$
 
 Speaking of such!! DNI & Thin Ices, smoke bombb! XD
 
@@ -119,16 +128,6 @@ Thin Ices:
 
 
 <img width="2000" height="237" alt="1000005353" src="https://github.com/user-attachments/assets/aa9ec315-d6c3-4a49-a88b-790ca15cee30" />
-
-
-Selfships / Yumeships for our system;
-
-● Killer!Sans from Something New — Sharing.
-
-● Nightmare!Sans from Dreamtale — Sharing. (We don't support Joku!! Ewww, joku, why you are darkshipper and abusive asshole, jokublogg... Eww, stinky.)
-
-CHAT, DW WE AREN'T WEIRD PLZZ. WE WON'T BE FREAKS IF YOU'RE A FICTIONKIN, COPINGLINK OR FICTIVE OF THEMM... We're a chill person, dw gang — we literally have too many fictives of Killer, ts crazy.
-
 
 <img width="480" height="20" alt="1000005350" src="https://github.com/user-attachments/assets/70b0f07f-8134-4632-a271-7ab8b96540c5" />
 
