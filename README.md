@@ -1,49 +1,35 @@
 ![](https://komarev.com/ghpvc/?username=v3nusf1ytrab)
 
-$${\color{green}\text{Hello there!! My name's Eztli — or you can call me Wick. I also go by The Flytrap System as a system name! }}$$ 
+$${\color{green}\text{Hello there!! My name's Eztli — or you can}}$$
+$${\color{green}\text{call me Wick. I also go by The Flytrap}}$$
+$${\color{green}\text{System as a system name!}}$$ 
 
 
-I am a diagnosed DID system along with a dx'd ADHDer with heavily suspected Borderpolar (Borderline Personality Disorder + Bipolar) and ASD. As our bio had already stated
+$${\color{lime}\text{I am a diagnosed DID system along with a}}$$
+$${\color{lime}\text{dx'd ADHDer with heavily suspected}}$$
+$${\color{lime}\text{Borderpolar (Borderline Personality Disorder}}$$
+$${\color{lime}\text{+ Bipolar) and ASD. As our bio had already}}$$
+$${\color{lime}\text{stated}}$$
 
-I, collectively, identify as Genderfluid (particularly Systemfluid due, well... Ya know being a multiple), Pansexual, Aroacefluid and Ambiamorous! 
+I — collectively — identify as Genderfluid (particularly Systemfluid cuz, ya know, being a multiple), Pansexual, Aroacefluid and Ambiamorous! 
 
 <img width="40" height="40" alt="1000005509" src="https://github.com/user-attachments/assets/1082d4e1-8942-4dc2-8371-d70749ba2558" />
+
 <img width="40" height="40" alt="1000005508" src="https://github.com/user-attachments/assets/7a4669f4-ee68-4208-a09f-7e443b0dfe47" />
+
 <img width="40" height="40" alt="1000005507" src="https://github.com/user-attachments/assets/0946b42b-8c46-4573-9f98-c43d29cc31fd" />
+
 <img width="40" height="40" alt="1000005506" src="https://github.com/user-attachments/assets/0bf47bd9-bbd3-4c6f-ba67-c2fbe2f23b67" />
+
 <img width="40" height="40" alt="1000005505" src="https://github.com/user-attachments/assets/7bcf069a-ad77-4702-8096-a3777ec3dab4" />
+
+
 
 Overall, we would prefer genderneutrul (They/Them, It/Its) pronouns or plural (yall/yall's) pronouns when we don't tell who is actively interacting with you.   
 (For more information on this stuff, go to our pronouns․page which is in our links!)
 
 Please tell us if you have any questions about anything related to those things!
 
-
-<img width="400" height="30" alt="1000005347" src="https://github.com/user-attachments/assets/8baedc99-7909-4fec-a21a-e92aff6fffd8" />
-
-
-I thought I should give a list of the most common dissociative parts you may encounter!
-
-￬￬￬
-
-● Flit (❤️)  ❯❯❯❯  Host of our subsystem called "Abstraction Collective", along with using privated community terms.
-
-Flit is usually a IWEC (Interact with extreme caution) due to their privated roles.
-
-
-● Coello (🐇) ❯❯❯❯ Host of the Multiversal Passage subsystem!! Along with being a Depression Holder (he experiences depressive episode more than the rest of us tldr)
-
-Coello is pretty chill!! But he does usually use IWC due to both obvious and unobvious reasons.
-
-
-● Slasher (🎯) ❯❯❯❯ Co-Host to Coello while we also have them labeled as a "Protescutor" (both a Persecutor & Prosecutor) along with a Mania Holder (so like opposites with Coello, experiencing mania more than the rest of us)
-
-Due to multiple reasons; they are considered to be a IAYOR. (Interact at your own risk) 
-
-
-● Lovesick (👾) ❯❯❯❯ The most often fronting part of the Loverboy Cave subsystem, role is privated due to privacy concerns and just overall safety.
-
-Lovesick is DNIUF (Do not interact unless friends) as to their role.
 
 <img width="1280" height="250" alt="1000005349" src="https://github.com/user-attachments/assets/5759492f-e13b-4e9c-9b67-25916e63265f" />
 
