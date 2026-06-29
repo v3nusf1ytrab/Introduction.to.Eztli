@@ -1,5 +1,13 @@
 ![](https://komarev.com/ghpvc/?username=v3nusf1ytrab)
 
+
+<img width="1300" height="1300" alt="1000005553" src="https://github.com/user-attachments/assets/96ebf972-c002-440b-ba58-afd43293194d" />
+
+$${\color{red}\text{Overlay above: from Pinterest}}$$
+$${\color{red}\text{Art above: made by us, DO NOT REPOST OR}}$$
+$${\color{red}\text{ USE WITHOUT EXPLICIT PERMISSION!}}$$
+
+
 $${\color{green}\text{Hello there!! My name's Eztli — or you can}}$$
 $${\color{green}\text{call me Wick. I also go by The Flytrap}}$$
 $${\color{green}\text{System as a system name!}}$$ 
