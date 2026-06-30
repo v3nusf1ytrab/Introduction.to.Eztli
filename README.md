@@ -1,4 +1,4 @@
-[Profile Views](https://komarev.com/ghpvc/?username=v3nusf1ytrab)
+![](https://komarev.com/ghpvc/?username=v3nusf1ytrab)
 
 
 <img width="1300" height="1300" alt="1000005553" src="https://github.com/user-attachments/assets/96ebf972-c002-440b-ba58-afd43293194d" />
