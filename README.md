@@ -1,4 +1,4 @@
-![](https://komarev.com/ghpvc/?username=v3nusf1ytrab)
+8e77368b-f4a4-4f19-952c-24685befdf27![](https://komarev.com/ghpvc/?username=v3nusf1ytrab)
 
 
 <img width="1300" height="1300" alt="1000005553" src="https://github.com/user-attachments/assets/96ebf972-c002-440b-ba58-afd43293194d" />
@@ -311,3 +311,5 @@ $${\color{grey}\text{the same views as you.}}$$
 $${\color{#CC160D}\text{I thought I should redo the introductions of}}$$
 $${\color{#CC160D}\text{the more commonly seen dissociative parts.}}$$
 $${\color{#CC160D}\text{Do keep in mind we may redo again. -❤️}}$$
+
+# Introductions
