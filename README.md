@@ -272,7 +272,7 @@ $${\color{#BAEB1B}\text{the pressure situation (We are NEUTRAL btw.)}}$$
 <img width="2048" height="136" alt="1000005554" src="https://github.com/user-attachments/assets/23b88bd0-eadb-4a53-b998-85bdf61d50bb" />
 
 
-$${\color{grey}\text{Links!! Do keep in mind boundaries when following.}}$$
+$${\color{grey}\text{Links!! Do keep in mind our boundaries}}$$
 
 [Vrchat](https://vrchat.com/home/user/usr_40f390a4-d60e-4baa-9242-a388e2e14f42)
 
@@ -285,4 +285,24 @@ $${\color{grey}\text{interacted with you.}}$$
 $${\color{grey}\text{Do not: Idk, just don't like}}$$
 $${\color{grey}\text{add us to uhhh... What's it called,}}$$
 $${\color{grey}\text{that listing thing cuz it's for partners. We do}}$$
-$${\color{grey}\text{not have partner(s) as far as June 2026.}}$$
+$${\color{grey}\text{not have outsys partner(s) as far as June}}$$
+$${\color{grey}\text{2026.}}$$
+
+[Tiktok](https://www.tiktok.com/@_bloody.skullz_?_r=1&_t=ZT-97e6XdGCzs5)
+
+$${\color{grey}\text{Do not: Repost anything we make unless}}$$
+$${\color{grey}\text{we explicitly say otherwise or is not ours}}$$
+$${\color{grey}\text{(like pictures and so on not being made by}}$$
+$${\color{grey}\text{us), use our irl voice for anything and}}$$
+$${\color{grey}\text{feed it to Artificial intelligence (AI),}}$$
+$${\color{grey}\text{follow us if you are on our DNI and Thin Ice.}}$$
+
+[Twitter](https://x.com/Flit_Is_Scuffed)
+
+$${\color{grey}\text{Do not: ask us to give our opinion on}}$$
+$${\color{grey}\text{anything that we don't have any CLEAR}}$$
+$${\color{grey}\text{knowledge in and clearly (yall should know}}$$
+$${\color{grey}\text{not to do this) harass us if we do not share}}$$
+$${\color{grey}\text{the same views as you.}}$$
+
+<img width="2048" height="136" alt="1000005555" src="https://github.com/user-attachments/assets/69dafdde-1624-4f7a-bc42-cb2338976a29" />
