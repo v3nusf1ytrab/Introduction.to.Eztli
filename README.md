@@ -306,10 +306,3 @@ $${\color{grey}\text{not to do this) harass us if we do not share}}$$
 $${\color{grey}\text{the same views as you.}}$$
 
 <img width="2048" height="136" alt="1000005555" src="https://github.com/user-attachments/assets/69dafdde-1624-4f7a-bc42-cb2338976a29" />
-
-
-$${\color{#CC160D}\text{I thought I should redo the introductions of}}$$
-$${\color{#CC160D}\text{the more commonly seen dissociative parts.}}$$
-$${\color{#CC160D}\text{Do keep in mind we may redo again. -❤️}}$$
-
-# Introductions
