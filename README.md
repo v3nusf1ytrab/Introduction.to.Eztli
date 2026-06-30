@@ -49,8 +49,8 @@ $${\color{#CF28BC}\text{(They/Them, It/Its, neopronouns) pronouns or plural (yal
 $${\color{#CF28BC}\text{when we don't tell who is actively interacting}}$$
 $${\color{#CF28BC}\text{with you. However, my friends have some}}$$
 $${\color{#CF28BC}\text{changes to that ruling. (Check our}}$$
-$${\color{#CF28BC}\text{pronouns.page for more information, it's in}}$$
-$${\color{#CF28BC}\text{our links!)}}$$
+$${\color{#CF28BC}\text{pronouns.page for more information, it's at}}$$
+$${\color{#CF28BC}\text{the bottom of this!)}}$$
 
 
 <img width="2048" height="136" alt="1000005555" src="https://github.com/user-attachments/assets/69dafdde-1624-4f7a-bc42-cb2338976a29" />
@@ -247,7 +247,10 @@ $${\color{#CC160D}\text{+ toxic friends of such}}$$
 $${\color{#CC160D}\text{(Told us to do it, kill ourself, after ❤️ was}}$$
 $${\color{#CC160D}\text{trying to rehabilitate a 10-11 y.o darkshipper}}$$
 $${\color{#CC160D}\text{after they, as a group, were harassing such}}$$
-$${\color{#CC160D}\text{and telling the CHILD to hurt themself)}}$$
+$${\color{#CC160D}\text{and telling the CHILD to hurt themself.}}$$
+$${\color{#CC160D}\text{We are 13-14 while they all}}$$
+$${\color{#CC160D}\text{were 16 and/or all the way}}$$
+$${\color{#CC160D}\text{up to 18+.)}}$$
 
 
 $${\color{#BAEB1B}\text{Thin Ices:}}$$
@@ -263,4 +266,23 @@ $${\color{#BAEB1B}\text{● People who say self/yumeshipping}}$$
 $${\color{#BAEB1B}\text{with a character is the bad version}}$$
 $${\color{#BAEB1B}\text{of parasocial behavior}}$$
 $${\color{#BAEB1B}\text{● Pro-Ren individuals in}}$$
-$${\color{#BAEB1B}\text{the pressure situation (WE are neutral btw.)}}$$
+$${\color{#BAEB1B}\text{the pressure situation (We are NEUTRAL btw.)}}$$
+
+
+<img width="2048" height="136" alt="1000005554" src="https://github.com/user-attachments/assets/23b88bd0-eadb-4a53-b998-85bdf61d50bb" />
+
+
+$${\color{grey}\text{Links!! Do keep in mind boundaries when following.}}$$
+
+[Vrchat](https://vrchat.com/home/user/usr_40f390a4-d60e-4baa-9242-a388e2e14f42)
+
+$${\color{grey}\text{Do not: Send friend request if we}}$$
+$${\color{grey}\text{DON'T know you or have never}}$$
+$${\color{grey}\text{interacted with you.}}$$
+
+[Pronouns.Page](https://en.pronouns.page/@Bl33ding_h3artZ)
+
+$${\color{grey}\text{Do not: Idk, just don't like}}$$
+$${\color{grey}\text{add us to uhhh... What's it called,}}$$
+$${\color{grey}\text{that listing thing cuz it's for partners. We do}}$$
+$${\color{grey}\text{not have partner(s) as far as June 2026.}}$$
