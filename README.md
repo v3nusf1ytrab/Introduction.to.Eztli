@@ -90,39 +90,42 @@ $${\color{#CF28BC}\text{Sharing. (We don't support Joku!! Ewww,}}$$
 $${\color{#CF28BC}\text{joku, why you are darkshipper and abusive}}$$
 $${\color{#CF28BC}\text{asshole, jokublogg... Eww, stinky.)}}$$
 
-$${\color{#671FDA}\text{Comfortkins for our system;}}$$
-$${\color{#671FDA}\text{● Reaper!Sans from Reapertale}}$$
-$${\color{#671FDA}\text{(We don't support the creator!!}}$$
-$${\color{#671FDA}\text{Cuz we heard that they did some}}$$
-$${\color{#671FDA}\text{predatory shit, so nahhh...)}}$$
-
-$${\color{#671FDA}\text{● Lulu, Lucelia and Lucifer by Luluyam}}$$
-$${\color{#671FDA}\text{(ALL HAIL MOTHER ROACHHHH!!!! lol)}}$$
-
+$${\color{#671FDA}\text{Our Synpath(s):}}$$
 $${\color{#671FDA}\text{● Eternal Sugar Cookie (We}}$$
-$${\color{#671FDA}\text{don't like the stuff going on in}}$$
-$${\color{#671FDA}\text{the fandom and by the discords atp...)}}$$
+$${\color{#671FDA}\text{don't like the stuff going}}$$ 
+$${\color{#671FDA}\text{on in the fandom and by}}$$
+$${\color{#671FDA}\text{the discords atp...)}}$$
 
-$${\color{#671FDA}\text{● Sun and Moon from FNAF (WE DON'T}}$$
-$${\color{#671FDA}\text{SUPPORT SCOTT. HOLY SHIT, WTF MAN. IM}}$$
-$${\color{#671FDA}\text{GOING TO DIE, WHY IS HE A TRUMP}}$$
+$${\color{#671FDA}\text{● Killer!Sans}}$$
+
+$${\color{#671FDA}\text{● Reaper!Sans (We don't support the}}$$
+$${\color{#671FDA}\text{creator!! Cuz we heard that they}}$$
+$${\color{#671FDA}\text{did some predatory shit, so nahhh...)}}$$
+
+$${\color{#671FDA}\text{● Discord}}$$
+
+
+$${\color{#671FDA}\text{Our Copinglink(s):}}$$
+$${\color{#671FDA}\text{● Sun and Moon (WE DON'T SUPPORT}}$$
+$${\color{#671FDA}\text{SCOTT. HOLY SHIT, WTF MAN. IM GOING}}$$
+$${\color{#671FDA}\text{TO DIE, WHY IS HE A TRUMP}}$$
 $${\color{#671FDA}\text{SUPPORTER???)}}$$
 
-$${\color{#671FDA}\text{● Discord from MLP}}$$ 
+$${\color{#671FDA}\text{● Lulu, Lucelia and Lucifer from}}$$
+$${\color{#671FDA}\text{LuciferLucifer (ALL HAIL MOTHER}}$$
+$${\color{#671FDA}\text{ROACHHHH!!!! lol)}}$$
 
-$${\color{#671FDA}\text{● Killer!Sans from Something New}}$$
+$${\color{#671FDA}\text{● Horror!Sans (ewwww, SourAppleStudios}}$$
+$${\color{#671FDA}\text{following after Joku with}}$$
+$${\color{#671FDA}\text{the darkshippingg, ewww... Trashcan}}$$
+$${\color{#671FDA}\text{for SourrAppleStudioss...)}}$$
 
-$${\color{#1321E0}\text{Copinglinks for our system;}}$$
-$${\color{#1321E0}\text{● Dust/Murder!Sans from Dusttale}}$$
+$${\color{#671FDA}\text{● Lust!Sans (Again, ew cuz}}$$
+$${\color{#671FDA}\text{darkshipper. We don't support}}$$
+$${\color{#671FDA}\text{the creator for this au. Yucky.)}}$$
 
-$${\color{#1321E0}\text{● Horror!Sans from Horrortale (ewwww,}}$$
-$${\color{#1321E0}\text{SourAppleStudios following after Joku with}}$$
-$${\color{#1321E0}\text{the darkshippingg, ewww... Trashcan for}}$$
-$${\color{#1321E0}\text{SourrAppleStudioss...)}}$$
-
-$${\color{#1321E0}\text{● Lust!Sans from Underlust (Again, ew cuz}}$$
-$${\color{#1321E0}\text{darkshipper. We don't support the creator}}$$
-$${\color{#1321E0}\text{for this au. Yucky.)}}$$
+$${\color{#671FDA}\text{Fictionkin(s):}}$$
+$${\color{#671FDA}\text{● Dust!Sans}}$$
 
 <img width="2048" height="136" alt="1000005555" src="https://github.com/user-attachments/assets/69dafdde-1624-4f7a-bc42-cb2338976a29" />
 
